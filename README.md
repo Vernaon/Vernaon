@@ -1,0 +1,5 @@
+- Hi, I’m @Vernaon
+- I’m boy
+- I’m interested in boys
+- I’m currently learning sex toys
+- How to reach me ...
